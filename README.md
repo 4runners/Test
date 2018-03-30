@@ -1,2 +1,0 @@
-# ResumeXiao
-About myself
